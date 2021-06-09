@@ -6,4 +6,4 @@
 
 - Portugiesisch
 
-- 
+- Andronaco _italienisch_; _vietnamiesisch_; _brasilianisch_
